@@ -1,0 +1,1 @@
+# PrognozowanieSyntetycznegoWska-nikaRozwojuSektoraEnergetycznego
